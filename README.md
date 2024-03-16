@@ -21,5 +21,5 @@ I love crafting beautiful and user-friendly web interfaces. Constantly learning 
 
 ## 📫 Let's Connect
 
-Feel free to reach out to me on [LinkedIn](https://www.linkedin.com/in/suriyaprakshs)!
+Feel free to reach out to me on [LinkedIn](https://www.linkedin.com/in/suriyars95/)!
 
